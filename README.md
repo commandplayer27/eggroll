@@ -1,0 +1,1 @@
+Egg rolls are a variety of deep-fried appetizers served in American Chinese restaurants. An egg roll is a cylindrical, savory roll with shredded vegetables, eggs, and other fillings inside a thickly-wrapped wheat flour skin, which is fried in hot oil.
